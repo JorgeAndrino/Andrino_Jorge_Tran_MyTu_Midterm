@@ -2,7 +2,7 @@
 
 ## Contributors:
 
-### **
+### *My Tu Tran*
 ### *Jorge Andrino
 
 ### Basic 1 page website stating the pros and cons of ice and hot coffee
